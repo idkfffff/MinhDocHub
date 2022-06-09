@@ -1,2 +1,0 @@
-# MinhDocHub
-sus
